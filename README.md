@@ -1,1 +1,1 @@
-This is the homepage of Lin Yijie.
+This is the homepage of Yijie Lin.
